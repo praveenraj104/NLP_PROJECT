@@ -41,5 +41,9 @@ With the rise of misinformation, automated systems for fake news detection have 
 
 ---
 
+![WhatsApp Image 2025-08-03 at 13 02 40_39b008de](https://github.com/user-attachments/assets/15bc31ed-d1a0-48d0-9e9c-e2deafcf048a)
 
+![WhatsApp Image 2025-08-03 at 13 02 40_88053015](https://github.com/user-attachments/assets/4a7bf052-79b3-4023-8e03-aa53cfa951aa)
+
+![WhatsApp Image 2025-08-03 at 13 03 29_4d8d2658](https://github.com/user-attachments/assets/1036669b-e84c-4041-bdfd-360ad54e6600)
 
